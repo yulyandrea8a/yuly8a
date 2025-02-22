@@ -1,2 +1,2 @@
-# yuly8a
-mis creaciones
+Brave
+En un reino lejano, donde la magia y el peligro se entrelazan, una valiente joven se enfrenta a su destino. Su espíritu indomable la lleva a desafiar a la temida hechicera Úrsula, pero un oscuro encantamiento la pone en grave peligro. Justo cuando todo parece perdido, el destino le entrega una última esperanza: una misteriosa botella que oculta un antiguo poder. ¿Será el genio su salvación o un nuevo desafío?
